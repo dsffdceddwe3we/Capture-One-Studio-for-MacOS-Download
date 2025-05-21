@@ -1,0 +1,1 @@
+# Capture-One-Studio-for-MacOS-Download
